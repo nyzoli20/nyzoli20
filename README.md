@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nyzoli20
-- 👀 I’m interested in football, video games,coding
+- 👀 I’m interested in football, video games, coding
 - 🌱 I’m currently learning pybricks
 - 📫 How to reach me: i don't know
 - 😄 Pronouns: he/him
